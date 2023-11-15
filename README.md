@@ -1,0 +1,1 @@
+# loring-diary-templates
